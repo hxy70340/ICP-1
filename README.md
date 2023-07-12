@@ -1,1 +1,4 @@
-video : https://drive.google.com/file/d/1SAkOTbYU-tRZnObGKS9vU3xKD0MYw3SH/view?usp=sharing
+
+
+https://github.com/hxy70340/ICP-1/assets/139238891/2ca8e723-d1ad-4597-ae57-b21ba5baaa9e
+
